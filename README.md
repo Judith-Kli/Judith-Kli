@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Judith-Kli
+- 👀 I’m interested in Frontend and Backend
+- 📫 You can reach me at the coolest digitalagency in Cologne and Berlin: brandung GmbH
